@@ -5,9 +5,9 @@
 
     
 
-Si xad dhaaf ah ha u aaminin saaxibkaada, soo dhaweyso cadaw hore?
+SI XAD DHAAF AH HA U AAMININ SAAXIBKAADA! SOO DHAWAYSO CADAW HORE
 
-Maxaa loola jeedaa?
+MAXAA LOOLA JEEDA?
 
 Iska ilaali saaxibkaada, sababtoo ah si fudut ayuu kugu qiyaami karaa, soo dhawayso cadaw hore, sababtoo ah
 wuxuu u dhaqma si ka dacadsan sida saxibkada, maxa yeelay asaga waa in uu cadeya in lagu tashan karo. 
