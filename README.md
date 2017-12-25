@@ -1,3 +1,10 @@
+
+          SHARCIGA
+          
+             2
+
+    
+
 Si xad dhaaf ah ha u aaminin saaxibkaada, soo dhaweyso cadaw hore?
 
 Maxaa loola jeedaa?
